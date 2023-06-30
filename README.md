@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ailearner123
+- 👀 I’m interested in ai and automaticion overall proggraming this is my chance to actully make a github in order to see my progresss and it might help me to get a job interview who knows (:
+- 🌱 I’m currently learning ai and automating
